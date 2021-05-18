@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @biancalino
+- 👀 I’m interested in biology & visual arts
+- 🌱 I’m currently learning how to freelance
+- 📫 How to reach me:
+     - bianca.lino@ryerson.ca
+     - @bia_lino_ (insta)
